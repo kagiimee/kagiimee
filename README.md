@@ -1,4 +1,5 @@
-## Hi! My name is kagi! Me kagi hi!
+## Hi! The name's Kagiura or call me Kagi!
+Mostly on PT market place as Giyuu or Yoriichi.
 
 <!--
 **kagiimee/kagiimee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
