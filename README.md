@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-♡<img width="374" height="211" alt="hirano-to-kagiura-hirano-and-kagiura-gif-hirano-to-kagiura-h" src="https://github.com/user-attachments/assets/9fede767-47ce-47e0-b013-61cfd268afdc" />୨ৎ
+୨ৎ<img width="374" height="211" alt="hirano-to-kagiura-hirano-and-kagiura-gif-hirano-to-kagiura-h" src="https://github.com/user-attachments/assets/9fede767-47ce-47e0-b013-61cfd268afdc" />୨ৎ
+"The look of love, the 
