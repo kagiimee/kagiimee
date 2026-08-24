@@ -19,10 +19,14 @@ Here are some ideas to get you started:
 
 Kanji:                    
 "そっと差し出す右手を
+
  ポケットに入れ 繋いだ  
+ 
  満足そうにしがみつき
+ 
  俺を見上げる お前と"
 
 English'
     "The only thing I've been wanting to convey and send to you is "I love you.
+  
     I will send it to no one else but you, always."
