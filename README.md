@@ -17,7 +17,8 @@ Here are some ideas to get you started:
 -->
 ୨ৎ<img width="374" height="211" alt="hirano-to-kagiura-hirano-and-kagiura-gif-hirano-to-kagiura-h" src="https://github.com/user-attachments/assets/9fede767-47ce-47e0-b013-61cfd268afdc" />୨ৎ
 
-          ""そっと差し出す右手を
-          ポケットに入れ 繋いだ
-          満足そうにしがみつき 
-          俺を見上げる お前と"
+Kanji:                    English:
+"そっと差し出す右手を         "The only thing I've been wanting to convey and send to you is "I love you." 
+ ポケットに入れ 繋いだ         I will send it to no one else but you, always."
+ 満足そうにしがみつき
+ 俺を見上げる お前と"
