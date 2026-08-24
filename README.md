@@ -1,5 +1,5 @@
-## Hi! The name's Kagiura or call me Kagi!
-Mostly on PT market place as Giyuu or around tfc area as Pierrot/Harlequin.
+## Hi my name's Kagiura but you can call me Kagi. At least that's what my friends call me:^
+I'm mostly around the Market place as Giyu/Yoriichi or TFC area as Pierrot! Come see me sometimes.
 
 <!--
 **kagiimee/kagiimee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
