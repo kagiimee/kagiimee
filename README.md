@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![image alt](https://github.com/kagiimee/kagiimee/blob/377900df76b43150bc227389f56e7ead3818c8f7/54606214229997191.jpeg)
+![image alt](<img width="400" height="300" alt="hirano-taiga-kagiura-gif-hirano-taiga-hirano-kagiura" src="https://github.com/user-attachments/assets/a23bac09-fb2d-419b-b07c-f25127ee057a" />
+
